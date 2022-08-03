@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ani-at-shopback
+- 👀 I’m interested in growing revenue
+- 🌱 I’m currently learning to stay warm in the aircon
+- 💞️ I’m looking to collaborate on anything about cashbacks
+- 📫 How to reach me: first name dotty last name at shopback dot com
